@@ -39,6 +39,7 @@
 ## 📫 Contact
 
 - GitHub: https://github.com/pranendrareddy
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/pranendra-reddy-h-g-1b6610341/
+- Gmail: pranendrareddyhg41@Gmail.com
 
 ⭐ Thanks for visiting my profile!
